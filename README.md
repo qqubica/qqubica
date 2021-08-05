@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @qqubica
+- 👋 Hi, I’m Kuba
 - 📫 Reach me on kuba@wudarscy.pl
