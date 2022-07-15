@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Kuba
-- 📫 Reach me on kuba@wudarscy.pl
+- 📫 Contact me via kuba@wudarscy.pl
